@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **oliullah.antor.094@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1nLxvrIV6AiSadXP-dZcoDLZQilS67NqUgO7dwjTbeZM/edit?usp=sharing](https://docs.google.com/document/d/1nLxvrIV6AiSadXP-dZcoDLZQilS67NqUgO7dwjTbeZM/edit?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16lR07PMLyzoRidWw_xB3jFC8Qdkfi87e/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
